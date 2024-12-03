@@ -1,1 +1,4 @@
-# 1967-045A
+- [Oxidizer Access](http://7ox1d1zer6l0ngaddress7secure1access.onion)
+- [Transpos Mainframe](http://traspos2randomlysecured9l0ngaddress.onion)
+- [Silent Vault](http://silentvault7ultrasecurelonglink4hidden.onion)
+- [Black Echo](http://blkecho1hiddenservice9verylongandsecure.onion)
